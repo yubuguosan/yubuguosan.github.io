@@ -1,0 +1,1 @@
+# yubuguosan.github.io
